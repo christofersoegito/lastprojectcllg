@@ -1,0 +1,2 @@
+# lastprojectcllg
+Jurnal dan skripsi
